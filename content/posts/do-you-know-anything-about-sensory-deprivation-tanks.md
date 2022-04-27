@@ -1,5 +1,5 @@
 ---
-title: Do you know anything about sensory deprivation tanks?
+title: Dua for anger يبلييبلي?
 date: 2021-02-02
 tags: [stranger things, tv series]
 social_image: '/media/rocket.jpg'
